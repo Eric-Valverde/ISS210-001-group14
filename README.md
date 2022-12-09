@@ -7,4 +7,4 @@ Stereotypes Take Shape.” Pacific Standard, https://www.google.com/url?sa=i&amp
 
 “Ed Post.” Black Girls Are Being Pushed Out of the Classroom, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.edpost.com%2Fstories%2Fblack-girls-are-being-pushed-out-of-the-classroom&amp;psig=AOvVaw1el-SkKLb7YXLaViqc4tqM&amp;ust=1670686187092000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCNim_pnt7PsCFQAAAAAdAAAAABAD. 
 
-“Scientific American.” In Schools, Honest Talk about Racism Can Reduce Discrimination, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.scientificamerican.com%2Farticle%2Fin-schools-honest-talk-about-racism-can-reduce-discrimination%2F&amp;psig=AOvVaw25WpyDTc_b5GTm8xZOdNR_&amp;ust=1670687759061000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCIDsq4fz7PsCFQAAAAAdAAAAABAD. 
+“ACLU.” TEACH KIDS, NOT STEREOTYPES, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.aclu.org%2Fteach-kids-not-stereotypes&amp;psig=AOvVaw1VwYOPkJHWZ1VXU0cujmPo&amp;ust=1670688971571000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCOCz6sr37PsCFQAAAAAdAAAAABAD. 
