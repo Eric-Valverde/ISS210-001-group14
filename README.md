@@ -8,3 +8,6 @@ Stereotypes Take Shape.” Pacific Standard, https://www.google.com/url?sa=i&amp
 “Ed Post.” Black Girls Are Being Pushed Out of the Classroom, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.edpost.com%2Fstories%2Fblack-girls-are-being-pushed-out-of-the-classroom&amp;psig=AOvVaw1el-SkKLb7YXLaViqc4tqM&amp;ust=1670686187092000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCNim_pnt7PsCFQAAAAAdAAAAABAD. 
 
 “ACLU.” TEACH KIDS, NOT STEREOTYPES, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.aclu.org%2Fteach-kids-not-stereotypes&amp;psig=AOvVaw1VwYOPkJHWZ1VXU0cujmPo&amp;ust=1670688971571000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCOCz6sr37PsCFQAAAAAdAAAAABAD. 
+ 
+ Régner, Isabelle, et al. “Effects of Socioeconomic Status (SES) Information on Cognitive Ability Inferences: When Low-SES Students Make Use of a Self-Threatening Stereotype.” Social Psychology of Education, vol. 5, no. 3, July 2002, pp. 253–69. EBSCOhost, https://doi.org/10.1023/a:1016313908667.
+ 
