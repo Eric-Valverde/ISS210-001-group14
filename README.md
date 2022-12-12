@@ -21,5 +21,5 @@ Modal4Image.png
 Modal6Image.png:
 Gross, Neil. “New York Times.” Https://Www.google.com/Url?Sa=i&amp;Url=Https%3A%2F%2Fwww.Nytimes.com%2F2019%2F04%2F26%2Fbooks%2Freview%2Fjennifer-l-Eberhardt-Biased.html&amp;Psig=AOvVaw0eKwyRjnt-3g5Y2gse-UCF&amp;Ust=1670695042216000&amp;Source=Images&amp;Cd=Vfe&amp;Ved=0CAwQjRxqFwoTCIii6Z2O7fsCFQAAAAAdAAAAABAE, 26 Apr. 2019, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.nytimes.com%2F2019%2F04%2F26%2Fbooks%2Freview%2Fjennifer-l-eberhardt-biased.html&amp;psig=AOvVaw0eKwyRjnt-3g5Y2gse-UCF&amp;ust=1670695042216000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCIii6Z2O7fsCFQAAAAAdAAAAABAE. 
 
-PDF Article for Modal 3
+PDFModal1.pdf
 Mahomes, Ambria. “You Rolled Your Eyes at Me: The Effects of Stereotypes and Implicit Bias on Black Girls and Discipline in the Classroom.” Journal of Race, Gender, and Poverty, vol. 10, Jan. 2018, pp. 39–62. EBSCOhost, 
