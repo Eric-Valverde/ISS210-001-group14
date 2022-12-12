@@ -4,16 +4,16 @@ NewISSprojectCover.png:
 “Race Equality Globally .” Byers, Paddy. Ably Solidarity Statement for Race Equality Globally, https://ably.com/blog/ably-solidarity-statement-for-race-equality-globally. 
 
 ImageModal5.jpg:
-Stereotypes Take Shape.” Pacific Standard, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fpsmag.com%2Fsocial-justice%2Fknowledge-process-information-scotland-stereotypes-take-shape-86697&amp;psig=AOvVaw3vvTYR_smBJe6eWsf7BFTj&amp;ust=1669903017946000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCKjN8taH1vsCFQAAAAAdAAAAABAD
+Jacobs, Tom. “How Stereotypes Take Shape.” HOW STEREOTYPES TAKE SHAPE, 14 July 2014, https://psmag.com/social-justice/knowledge-process-information-scotland-stereotypes-take-shape-86697. 
 
 ImageModal2.jpg:
-“Children's Self-Esteem Is Established by The Age of Five, Says a New Report.” Science Alert, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.sciencealert.com%2Fchildren-s-self-esteem-is-set-by-the-age-of-five-says-a-new-report&amp;psig=AOvVaw1U7txXYxuj2eEpOuMWFArN&amp;ust=1670684656892000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCODlscLn7PsCFQAAAAAdAAAAABAD. 
+Jacobs, Tom. Children's Self-Esteem Is Established by The Age of Five, Says a New Report, 13 Nov. 2015, https://www.sciencealert.com/children-s-self-esteem-is-set-by-the-age-of-five-says-a-new-report. 
 
 Modal1Image2.png
-“Ed Post.” Black Girls Are Being Pushed Out of the Classroom, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.edpost.com%2Fstories%2Fblack-girls-are-being-pushed-out-of-the-classroom&amp;psig=AOvVaw1el-SkKLb7YXLaViqc4tqM&amp;ust=1670686187092000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCNim_pnt7PsCFQAAAAAdAAAAABAD. 
+Patrick, Kayla. Black Girls Are Being Pushed Out of the Classroom, Ed Post, 28 Oct. 2015, https://www.edpost.com/stories/black-girls-are-being-pushed-out-of-the-classroom. 
 
 FINALmodal1.jpg:
-“ACLU.” TEACH KIDS, NOT STEREOTYPES, https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fwww.aclu.org%2Fteach-kids-not-stereotypes&amp;psig=AOvVaw1VwYOPkJHWZ1VXU0cujmPo&amp;ust=1670688971571000&amp;source=images&amp;cd=vfe&amp;ved=0CAwQjRxqFwoTCOCz6sr37PsCFQAAAAAdAAAAABAD. 
+TEACH KIDS, NOT STEREOTYPES, ACLU, https://www.aclu.org/teach-kids-not-stereotypes. 
  
 Modal4Image.png
  Régner, Isabelle, et al. “Effects of Socioeconomic Status (SES) Information on Cognitive Ability Inferences: When Low-SES Students Make Use of a Self-Threatening Stereotype.” Social Psychology of Education, vol. 5, no. 3, July 2002, pp. 253–69. EBSCOhost, https://doi.org/10.1023/a:1016313908667.
